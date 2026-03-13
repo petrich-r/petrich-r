@@ -1,17 +1,21 @@
-# ⋆˙⟡ Hiya!! Welcome to this page, glad to have you here 🍃
+## <p align="center">‎ Welcome to my page, enjoy your stay !1!
+## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 
+<!--
+Source - https://stackoverflow.com/a
+Posted by Fritzip, modified by community. See post 'Timeline' for change history
+Retrieved 2026-01-03, License - CC BY-SA 3.0
+-->
 
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/882cbaaa-5985-4dd5-bc84-a547de8fb6b3" />
+<a href="url"><img src="https://github.com/petrich-r/petrich-r/blob/main/9130e6534c741e53019590e94819a93f.jpg" align="left" height="200" width="1280" ></a>
+&nbsp;
 
-###### banner by @/dimented_goose
-#### ᯓ★ My name is Elias and I'll be your host for this evening, you can also refer to me as Flux and/or Fluixon !
-#### ‎ ‎ ‎ ‎ ‎   ᯓ★  I enjoy stuff such as ;; mm2012, state smp, forsaken, 8:11, crk, dead poets society, greek myhtos etc. !!
-#### ‎ ‎ᯓ★ Come up to me freely but I might not be very social as I have a hard time talking with others 
-#### ‎ ‎ ‎ ‎ ᯓ★  My discord is the same as my user here, feel free to add me but lmk beforehand <3
-## ‎ ‎ 
+<p align="center"> I go by <strong> petrichor </strong> however you can just call me by whatever character im cosplay as.... </p>
+<p align="center"> ‎ ‎ ‎ ‎ ‎   ᯓ★  My current interests !! ;; MM2012 </strong>, SCP , <strong> Hetalia </strong>, Detroit Become Human, Link Click, Black Butler, 8:11, Hades, Hadestown, Greek mythos in general, MM2012, 10Dance, DnD etc. etc. ,, !! </p>
+<p align="center">  ‎ ‎ᯓ★ <strong> Unless I'm on a dni </strong>, int with me freely </p>
+<p align="center">‎ ‎     ‎ ‎ ᯓ★ pspspps you should like totally sign my ata...  </p>
 
-## ⋅────────────────────────⊱༺-♰-༻⊰────────────────────────⋅
-##
-###### If you're still here you should sign my ata :3
+###### <p align="center">  I may not talk since I have social anxiety when interacting with others online!! either way feel free to int </p>
 
+## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 

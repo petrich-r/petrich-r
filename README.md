@@ -15,7 +15,7 @@ Retrieved 2026-01-03, License - CC BY-SA 3.0
 <p align="center">  ‎ ‎ᯓ★ <strong> Unless I'm on a dni </strong>, int with me freely </p>
 <p align="center">‎ ‎     ‎ ‎ ᯓ★ pspspps you should like totally sign my ata...  </p>
 
-###### <p align="center">  I may not talk since I have social anxiety when interacting with others online!! either way feel free to int </p>
+###### <p align="center">  I may not talk since I have social anxiety when interacting with others online!! I'm much more emotive with actions + I'll sometimes get my friends to talk for me </3. You can still interact nonetheless! </p>
 
 ## <p align="center">‎ ⋅───────────────────⊱༺-♰-༻⊰───────────────────⋅
 

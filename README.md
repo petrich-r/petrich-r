@@ -11,7 +11,7 @@ Retrieved 2026-01-03, License - CC BY-SA 3.0
 &nbsp;
 
 <p align="center"> I go by <strong> petrichor </strong> however you can just call me by whatever character im cosplaying as.... </p>
-<p align="center"> ‎ ‎ ‎ ‎ ‎   ᯓ★  My current interests !! ;; QSMP </strong>, 8:11 , <strong> Hetalia </strong>, MM2012, SCP, Monster High, Castlevania, PJSK. etc. ,, !! </p>
+<p align="center"> ‎ ‎ ‎ ‎ ‎   ᯓ★  My current interests !! ;; </strong> QSMP </strong>, 8:11, Hetalia, MM2012, SCP, Monster High, Castlevania, PJSK. etc. ,, !! </p>
 <p align="center">  ‎ ‎ᯓ★ <strong> Unless I'm on a dni </strong>, int with me freely </p>
 <p align="center">‎ ‎     ‎ ‎ ᯓ★ pspspps you should like totally sign my ata...  </p>
 
